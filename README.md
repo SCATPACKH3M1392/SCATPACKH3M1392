@@ -1,8 +1,8 @@
 - 👋 Hi, I’m @SCATPACKH3M1392
-- 👀 I’m interested in Using proxies to bypass filters
+- 👀 I’m interested in Proxies and other things of that nature
 - 🌱 I’m currently learning how to make a basic google site
 - 💞️ I’m looking to collaborate on some proxies
-- 📫 How to reach me account on school crhomebook so no way :c
+- 📫 Unless you are in the Turks and Cacios there is no way to reach me as it is a seperate country from the US.
 - 😄 Pronouns: He/him
 - ⚡ Fun fact: Blue fire is cold.
 
